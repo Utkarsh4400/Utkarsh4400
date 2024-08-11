@@ -25,7 +25,7 @@
 A Full Stack Developer from India. <br> <br>
 
 - ➡️ 🌱 I’m currently learning : Next.js <br>
-- ➡️ 📫 How to reach me : uttkarsh7777777@gmail.com <br>
+- ➡️ 📫 How to reach me : utkarsh.ofcl@gmail.com <br>
 - ➡️ 📫 Graduated From : **https://www.jetking.com/** <br>
 
 ## 🌐 Socials:
