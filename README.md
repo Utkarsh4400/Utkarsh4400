@@ -1,5 +1,4 @@
-![Navy Blue Geometric Technology LinkedIn Banner]
-<img src="https://www.canva.com/design/DAGNXFXqnlY/gs1GrmGlPaswS5Az-7TWQw/watch?utm_content=DAGNXFXqnlY&utm_campaign=designshare&utm_medium=link&utm_source=editor"/>
+![Navy Blue Geometric Technology LinkedIn Banner](https://www.canva.com/design/DAGNXFXqnlY/gs1GrmGlPaswS5Az-7TWQw/watch?utm_content=DAGNXFXqnlY&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
   
   
